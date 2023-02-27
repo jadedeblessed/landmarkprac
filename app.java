@@ -1,2 +1,2 @@
 This is a great work
-it is mervelouse in our sight
+it is marvelouse in our sight
